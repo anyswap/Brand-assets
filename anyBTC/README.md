@@ -1,0 +1,1 @@
+anyBTC Logo
